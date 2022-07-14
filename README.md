@@ -1,3 +1,3 @@
 
-Hi there 👋. I'm HarriS, and I am a sociable person align=”center”>
+Hi there 👋. I'm HarriS, and I am a sociable person >
 
